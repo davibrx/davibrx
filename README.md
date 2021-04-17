@@ -1,5 +1,5 @@
 - 👋 eai tudo bem meu nome é davi
-- 👀 eu estou interessado em trocar
+- 👀 eu estou interessado em conversar e achar alguém
 - 🌱 eu gosto de várias coisas como cozinhar e conversar
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
